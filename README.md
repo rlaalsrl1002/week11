@@ -43,8 +43,22 @@ DS009
 
 
 DS011
+<img width="569" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/80ff682d-c35b-456b-a218-ebc81b7baccd">
+
+<img width="397" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/da662a9c-26d6-4f35-85c5-db387b8c7af5">
+
+<img width="438" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/48db8913-df7d-452b-83fd-100950a92253">
 
 
 DS012
+<img width="457" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/86bfc742-5c6a-4a14-9784-cc930f7cb3b6">
+<img width="498" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/5803fe66-2a9d-459b-9602-022b09bb32f8">
 
-DS014
+
+
+DS015
+<img width="372" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/10c26b6b-caae-426a-920b-dcba97cb4918">
+
+<img width="391" alt="image" src="https://github.com/rlaalsrl1002/week11/assets/83528473/c892cbf3-2655-4e63-879f-514627cb2b27">
+
+
